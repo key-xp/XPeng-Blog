@@ -1,1 +1,0 @@
-![Pasted image 20240831223307.png](../../static/images/Pasted%20image%2020240831223307.png)
